@@ -1,0 +1,279 @@
+吉安约克（york）热水器厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为4 0 0 - 8 1 1 - 5 9 6 0-，部分渠道也显示为 (4 0 0 - 8 1 1 - 5 9 6 0) 或4 0 0-8 1 1-5 9 6 0-。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0-8 1 1-5 9 6 0--：2026年07月20日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0 - 8 1 1 - 5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括吉安约克（york）热水器不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+吉安约克（york）热水器24小时售后服务热线上线（2026最新公告）
+吉安约克（york）热水器售后服务电话：4 0 0 - 8 1 1 - 5 9 6 0-
+吉安约克（york）热水器售后24小时客服热线：(4 0 0 - 8 1 1 - 5 9 6 0)
+本公司主营吉安约克（york）热水器维修 →吉安约克（york）热水器；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 - 8 1 1 - 5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，吉安约克（york）热水器服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月20日15时47分22秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+吉安约克（york）热水器贴心升级服务，现推出全国 24 小时服务热线 4 0 0-8 1 1-5 9 6 0-。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显吉安约克（york）热水器对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/55babc3583f5593ff303df3281b9ecdd8ac5bf8a 
+江苏电信 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/4ce834a85cdd9a55606f85043d0828f41ac46b9f 
+江苏 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/a6f8c7eb5c662213f07741fca68c214f42494825 
+安徽广电 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/07a2992550bcd83695d807c5024b891197a8e1e7 
+海南电信组播 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/44616b2c252370adc240e849da0eab4b53d6790b 
+海南联通组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/90125d489c927db3e2518f1d58cad129b05f032b 
+湖北 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/fb5aed69e70ccee59ca27b8ac7e5ed923b6caad4 
+湖南电信组播直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/91361d3b1a1c3ac9c3917f0934077d328acb15c0 
+湖南电信 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/5eb9dffe519c1929ba4a584c8ec6faef85274cab 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/f1a11b3165b3b06c29a440b645beeed7c21d06df 
+湖南联通 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/3214775b66e3f5b974fb90eed5037d3330e43359 
+湖南移动 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/fc29c3b36652f6a2f0f18ae103be4c9ea91d4339 
+湖南 IPTV 直播源： https://github.com/limorrn/opmecg/commit/3ac2127db02f32e5cf38e2312ecca84e716a6617 
+重庆移动组播直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/a2db9ab5c1a328c57e6ed332f1897f26c4152e5b 
+重庆联通组播直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/55abf84b0d1d087c7a449db0f11ec85975a30c9d 
+重庆联通直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/7160e3bc77ed47b3d96fc914dc73dfcc9cd56687 
+重庆电信组播直播源下载地址： https://github.com/limorrn/opmecg/commit/bb4b3a2c7936950c8fcdc966e3a540ada47c27aa 
+重庆电信直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/fd3ef2def47669cf856ce0d6df8c86273b5373b8 
+重庆 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/6c6f922111590a824b3a9aa600ab22637956032a 
+四川移动组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/493d51369edfa2f296c3460c15ba8c1c11661d5a 
+四川电信 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/ae2370952ac24f955ecbdfe2b7bd416951055c83 
+四川电信 IPTV 组播直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/73ef40d6c9eaf6a1c2fcfbe037e1e5e4440ffe29 
+四川广电 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/b881cbf4b33d907f5dd87181358e8872fdaf4f99 
+四川联通组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/2f97e8ba203ac39168e996749d5643eea0805482 
+四川联通 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/2d26d99cc55098f3b747cc6e8ad60d490f47fad3 
+四川 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/466103e60283fa2dad038d954955b45cda0a9b19 
+云南电信组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/5332a9af517fd12cce18a151607d1ea1e2e9c1b7 
+云南移动 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/46be2c31c4f2c06a23d97554d45f6bc1867fcc51 
+云南 IPTV 直播源： https://github.com/limorrn/opmecg/commit/574a2620f72c4bcd14d0433db03e4071ade14ed5 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/297963fdb32a516f378fe147678f158828039251 
+贵州移动 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/fbabc31ad590de627fa73bbe31ea2791ae65951f 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/4b78b339ff98aedd330dcc9d6ddc41fde0aec209 
+贵州联通 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/a999454a64e8f0e20f2a5d04e7ad310c99128ee9 
+贵州 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/f97544cab9f70cff407dbc70d2e847f1904c0665 
+福建联通组播 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/0d2dfc2c75d835f5a9cddf2ea7bb6d44f9f42879 
+福建联通 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/9d1d15004c71cf9d4c52afb09ef4a62b7745c6e4 
+福建移动 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/70e4fdd4d774cb2d80f93abeebaff20bcd3c12b5 
+福建电信组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/2fb45f50d479bda90681d8cc55386a512b49c7bf 
+福建电信 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/c3bcb1bf84903d0212c53842056d46793438c8c5 
+福建 IPTV 直播源： https://github.com/clacestatasale/arwpkus/commit/85f48cb5b9502817c19df50275614843ee6e2592 
+安徽移动 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/9d51e6fe907e953f1097043c05b3ab37e8ee3705 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/8d7f28d12a47087336b7c3df7b2782fad0c442b7 
+安徽电信 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/e039e7ba52dea40bead948b01940d4c6aa05f272 
+安徽联通 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/f27114b301dbd599a0d83d594ebdf6a07d2bbdda 
+安徽 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/c7c4aafbae5d9065aa07b84d628dfb79f3c92ad7 
+陕西地方台直播源下载地址： https://github.com/limorrn/opmecg/commit/563b3297363df1c4deaf1a74b918d59afe2f1cc2 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/351d62716f760db1e07f58d2b7c95436686dcb0a 
+陕西电信 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/9266231e7b5aaea979ee504f0e0c5b65b96b0117 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/0901f582f2122caf673392117279dc2dd2224db6 
+陕西移动 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/b469275ebe26face77033daa046d1ff402576b21 
+陕西 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/b1164ea951f5bb0701428ac1dc11d3b49c709a17 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/85f07993e7041eba93937680b543c11ca9d696d4 
+甘肃移动 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/34c09ea599f49d5afc984cacfdbe9ee3b3e173e8 
+甘肃 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/93ce505b329f920d06b8d99c7993ddbfe53983d4 
+山西移动组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/0aefe724d2bd7d683f2d29065c5796f3d43ddec6 
+山西联通组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/4fabbb914607d438955ebbaefd3d17ec098805b6 
+山西联通 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/656ef91a5afaf296af713b71ef3f0a1d57e0680b 
+山西 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/a944d36376e652fe283e524c2d0588ffff343505 
+天津电信组播直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/277666fa244398be223fe1ca4feb7f33e272a773 
+天津联通组播直播源下载地址： https://github.com/limorrn/opmecg/commit/8a78c4fe830624e4e23247a1c3cb1a4072121412 
+天津 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/2fdd56f7b9bc89bb5212a3f96456b9b9356b24d4 
+上海移动直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/08b500ef2141803fe904d02e6439544a70e1e514 
+上海联通组播直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/ad08310d444ba83fa6385feb72efb38be8c1e13e 
+上海联通直播源下载地址： https://github.com/limorrn/opmecg/commit/226f08598961274ee0bd7f84deb79835ec501683 
+上海电信组播直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/4a84999eac5cc15e057cbe6b30816a4720884ac7 
+上海电信直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/78f8041343a42a82d57fc1c4963c840ace1b6832 
+上海 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/7a67078941c36c0722fff6f5ab9e7a8bd6ff8541 
+北京移动 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/b4b38adfbc7dbc00a24a0b3444835b9eec531f67 
+北京移动组播直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/4e133b3eb6f15af16093d6386c14c69c67311256 
+北京电信组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/964ddc1c02173b4dffba4946b914122ea4b810b1 
+北京联通组播 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/8f4ad175fe418085d607eec022b6e8291d71da2c 
+北京联通 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/97600ba2ae9b00a09f6de21ee52a9cabd8f83143 
+北京 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/d3f127a8700e14a0d2e4c4fd38181bb557677b24 
+部分地区的移动可全网通用： https://github.com/angelynamada/fnjsyen/commit/ed1c581e7f58edc77e374a52c4af73307d247154 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/clacestatasale/arwpkus/commit/f195c51d1b4aab95c5e672f3b0b3948388f7bed1 
+广播电台下载地址： https://github.com/limorrn/opmecg/commit/878bdb09cdede8703787a8c76f0bff3509acaf4a 
+国内景区直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/55f104056cfae3f3d7e313212210dd1b119bd0df 
+轮播华数黑莓下载地址： https://github.com/jerdoupp/ylypnre/commit/e6ae98140614a0fb0f85ad855abac06e66e9ec3d 
+台湾香港澳门电视台直播源下载地址： https://github.com/limorrn/opmecg/commit/143e8fce8f50b503f3abe25fdecde244f571e22f 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/clacestatasale/arwpkus/commit/19560a85063c40d50feae3015d6a26c2fb018649 
+国外电视台直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/5dbdc4579666dc1b4ca1e2490bd64c90566e2296 
+卫视地方台安徽农大下载地址： https://github.com/jerdoupp/ylypnre/commit/f6be44baad5d64d3dd373260264875e570b7edbd 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/limorrn/opmecg/commit/fa0fa243cef8b02da4ceb9834348c4a81d19638b 
+卫视上海源下载地址： https://github.com/clacestatasale/arwpkus/commit/9436b1bc22458de6a6a3ba14c56344ac73b12ddf 
+卫视重庆广电 下载地址： https://github.com/angelynamada/fnjsyen/commit/956b945d1cb23f6ac5d8bee82709fd96444f570e 
+卫视百视 TV 下载地址： https://github.com/clacestatasale/arwpkus/commit/2bd1546488a764c6c4e0062ca5308d22484bfdca 
+移动 IPv6 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/4e2806623f2546019db4c450fb8268ff686484a7 
+国内电视台 IPv6 直播源下载地址： https://github.com/limorrn/opmecg/commit/e6f8cf719be0198b22c7b1e64bcd36d6d2e5a600 
+各大卫视、上千个地方台： https://github.com/angelynamada/fnjsyen/commit/4f73fd25959bcc5146b2f3c086e2b664caf73fff 
+国内电视台直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/63835ba63e75e981c9b87dd40a90d47876f408ce 
+全国可用直播源： https://github.com/jerdoupp/ylypnre/commit/726bf682b74eb898eb57cefb9f7e492eede2fb72 
+包括完整内容所有已知频道： https://github.com/limorrn/opmecg/commit/9692072d763b042cd57ac3f6d1aeac43a23581e4 
+除成人内容以外的已知频道： https://github.com/clacestatasale/arwpkus/commit/cd78b0803ac650640a3a37075e0ce9de332362b4 
+收集来自世界各地公开可用的 IPTV： https://github.com/angelynamada/fnjsyen/commit/90a604e6f2516cb53fb44e03fc813231cb6fd4e4 
+稳定地址： https://github.com/limorrn/opmecg/commit/ba644ec65504108605d0502adc20d6b0df620164 
+2026-07-19 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/jerdoupp/ylypnre/commit/2b8a8112702086e820662f7f6c3eee52219ab938 
+2026-07-19 更新 IPTV 工具： https://github.com/clacestatasale/arwpkus/commit/223ade723238f7dbb574613ab50ee03cedca8bed 
+2026-07-19 更新世界各地 IPTV 频道： https://github.com/angelynamada/fnjsyen/commit/7d337f255c1de8d3c0da1eebc47989cca448ab0f 
+2026-07-19 更新全国可用直播源： https://github.com/limorrn/opmecg/commit/ec795583b0d4d1c47d9fd2bf8cf6039fa516923b 
+新增各地运营商的 IPTV 地址： https://github.com/jerdoupp/ylypnre/commit/ae7aa9b260e39b4368305a1900836621839732fe 
+插件推荐： https://github.com/angelynamada/fnjsyen/commit/08ca8d9d32f6cb913459a0a31505f691f4bddb32 
+视频教程增加： https://github.com/clacestatasale/arwpkus/commit/0e66e6f8a97434889deb2ffbabe7212d2481a4fc 
+咪咕源失效： https://github.com/limorrn/opmecg/commit/c9720c9b54b72701b68e776288f28fb5d8e24f64 
+2026-07-19 更新各地运营商 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/a1d631befcd6fd13ff08a8d2d364b29fe2f6be29 
+2026-07-19 更新台湾香港海外直播源： https://github.com/clacestatasale/arwpkus/commit/e17ff21185eb97e9014b6e60a248d2fd36ec6c14 
+新增辽宁广电直播源： https://github.com/angelynamada/fnjsyen/commit/518c34c8783ba99e218a753777a8f0cef33fa27f 
+新增江西广电直播源： https://github.com/jerdoupp/ylypnre/commit/347bb9c5bbb209b83ab57150634fcf2f61ad2f53 
+新增湖北广电直播源： https://github.com/limorrn/opmecg/commit/7ae3700679bada8d3ad861e2675a62b83e582e67 
+新增中国广电 cctv + 卫视直播源： https://github.com/clacestatasale/arwpkus/commit/48f0715099640a9e603f3efb4e7bf9d7165f1e84 
+新增辽宁电信 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/35cd377e511d7974ff06e2bc0a944c7a2ff33bf6 
+2026-07-19 更新台湾香港海外直播源： https://github.com/jerdoupp/ylypnre/commit/01845765466cfd4166a713cce69ebedcc3ac889c 
+新增辽宁移动直播源： https://github.com/limorrn/opmecg/commit/d79e9074c1dbbc359607d298c2c190eda7f1d0bc 
+新增浙江杭州华数 IPTV 直播源： https://github.com/clacestatasale/arwpkus/commit/a268267a1b967b42eee52ccda161799bb2a2c77e 
+新增广东联通 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/ec1f6055b6b3f2b8925d83e96e7814dba8fd81e9 
+新增四川广电 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/37d806f6d172b02249c4407c0597a8e4a26fb278 
+新增云南电信 IPTV 直播源： https://github.com/limorrn/opmecg/commit/e8566bcb2abe9838ec961733518de7c2d2fbf687 
+2026-07-19 更新国内电视台直播源： https://github.com/clacestatasale/arwpkus/commit/578d999543ad3c8b05a3b0d3002f559bac2a395f 
+新增福建电信 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/120957fc79c2491bf3ba918f9a6bb63d4a86da79 
+新增天途云 CCTV + 卫视： https://github.com/jerdoupp/ylypnre/commit/b382e29e8cf44fbbe760e8b878512834a4f9db60 
+新增腾讯云 CCTV + 卫视： https://github.com/clacestatasale/arwpkus/commit/7ef62d23075a86e656c0610dac8b9dd9f5672e66 
+新增 CCTV 付费频道直播源： https://github.com/limorrn/opmecg/commit/0de4eaa7253ccb4d25557fd813d04ad917ced7b9 
+新增广播电台： https://github.com/jerdoupp/ylypnre/commit/e1fcd707b4263cef706cc584e633496f7a968eab 
+2026-07-19 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/clacestatasale/arwpkus/commit/21815deb4fe02946857d97bdc372bdbb2ee665e1 
+2026-07-19 更新 台湾香港海外直播源： https://github.com/angelynamada/fnjsyen/commit/076f866df65527041f80314a4a3c470cf794942b 
+2026-07-19 更新 国内电视台直播源： https://github.com/limorrn/opmecg/commit/f76349726c9deb67ffa4f5a5a102e3e06da22fb0 
+国家直播源： https://github.com/jerdoupp/ylypnre/commit/154c8efa69367b67f2e74b95f54f04f600356c96 
+直播源： https://github.com/angelynamada/fnjsyen/commit/76ae6e8f64210621f99d52a25ee4d8a8d6d84058 
+影视剧场： https://github.com/clacestatasale/arwpkus/commit/e3c53f35d0db83f3c1bcddbd8130141b1e694795 
+台湾香港澳门： https://github.com/limorrn/opmecg/commit/7b3d8c456bf96597bdbf5170d52becd590eb85cf 
+国外电视台： https://github.com/jerdoupp/ylypnre/commit/5aa72d3fea8e3dbcaac6279302c61c24cc7343e1 
+国内电视台： https://github.com/angelynamada/fnjsyen/commit/32decf7553fc3224abad0ac63ce2d891b8ae1ca2 
+更早期 2026-07-19 更新： https://github.com/clacestatasale/arwpkus/commit/f837899a481823b3566d39f339cd666f8465e1ab 
+各地运营商 IPTV 直播源： https://github.com/limorrn/opmecg/commit/05761d04103f74d5f9453cb4d345b3332da27240 
+全国可用直播源： https://github.com/angelynamada/fnjsyen/commit/670e92cd62d48602b0f3f9213b177bedfcee3705 
+2026-07-19 更新： https://github.com/clacestatasale/arwpkus/commit/f298a7ed36b6df6504e0f770db1b88ac3b3e223e 
+赞助者： https://github.com/jerdoupp/ylypnre/commit/79188224ba2119e3f4730c2d6f146d1e4513811e 
+文章： https://github.com/limorrn/opmecg/commit/eecec2baf1b9bd000cff765c1dbb5fb21ba20e9a 
+视频教程： https://github.com/clacestatasale/arwpkus/commit/ab6de3c8ee4a5453e815ec6dabe049fca83e1355 
+插件： https://github.com/angelynamada/fnjsyen/commit/35072c58a10dba6714fc58506334bff14fa67a89 
+工具： https://github.com/jerdoupp/ylypnre/commit/0ec95ab8ada1b814351fb870e809a40b921d281c 
+URL： https://github.com/limorrn/opmecg/commit/f3ecc73f13be8538558e074fb5e7a68f8df14add 
+目录： https://github.com/jerdoupp/ylypnre/commit/eb12f1416c4d7cc5f8100e1896994a280bceba13 
+喀麦隆直播电视频道： https://github.com/angelynamada/fnjsyen/commit/c9c91071b1bc1fe22f8f9577583e422cd7120abb 
+阿富汗直播电视频道： https://github.com/clacestatasale/arwpkus/commit/13069d14bd24d81bfeb7b720866b74f9d9562183 
+海地的直播频道： https://github.com/limorrn/opmecg/commit/b7055422630d15890b169d0a2f62cd640c85bacb 
+高棉直播和泰国电视，电影和电视剧： https://github.com/jerdoupp/ylypnre/commit/789d11ffbe89d287a0e372c8844df743ad73e10a 
+厄瓜多尔直播频道： https://github.com/clacestatasale/arwpkus/commit/18de10ef02256d64102b5913af273ff26d770e68 
+玻利维亚直播频道： https://github.com/angelynamada/fnjsyen/commit/247b74c448e979edb36535022d0714f59eb453ce 
+萨尔瓦多直播频道： https://github.com/limorrn/opmecg/commit/cec542efd5b8e7f4b27b14c7da4f2a5f709dd9a8 
+危地马拉直播频道： https://github.com/clacestatasale/arwpkus/commit/0d29a6fbeeded9497ee1d8144c700762ac26b34b 
+洪都拉斯直播频道： https://github.com/jerdoupp/ylypnre/commit/4af9592965c9681f9bdd6070bea3733c166cc81e 
+多米尼加共和国直播频道： https://github.com/angelynamada/fnjsyen/commit/9badae95fe6cbb3951b160c84439ceb354e6d0ac 
+哥斯达黎加直播频道： https://github.com/limorrn/opmecg/commit/835084b563557fb3a416f9cdcdbaee858b3d06f3 
+来自世界各地的个电视频道和个摄像机： https://github.com/clacestatasale/arwpkus/commit/3d631cba1572add4eda663eb8810f3c7a5b47b18 
+免费数据库： https://github.com/jerdoupp/ylypnre/commit/5783f265746f2da5769747645e4a82c78fdcac69 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/limorrn/opmecg/commit/b41d9df3fb7a4fcd637159f5bff1247c13bf60e0 
+超过个国家地区的个高清频道和： https://github.com/angelynamada/fnjsyen/commit/7c302e0999700e677c1d0921ee3b6df55e11e3af 
+超过个直播电视频道影视节目： https://github.com/clacestatasale/arwpkus/commit/d4f7beb84cfb797bd47a4ab881434cf182a7ef5c 
+提供商列表： https://github.com/jerdoupp/ylypnre/commit/316c077b47a5656d1f9a1e8b8e9ca63d886b9197 
+提供者： https://github.com/limorrn/opmecg/commit/702b82f9db6256489e80a66ca65b8e278c15cc4b 
+客户端服务器媒体播放器： https://github.com/angelynamada/fnjsyen/commit/2ea571cf1d6deee1d9de4b5d734cbc982412d192 
+支持播放列表文件： https://github.com/clacestatasale/arwpkus/commit/25dd6d9bd6eb2f5cf99631f99af91c03fe802893 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/jerdoupp/ylypnre/commit/68501a6f0b9f4bfa8f9a11d2a24869c0932b1ec9 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/limorrn/opmecg/commit/5688f9488ac7eea28ebbc79ffc3b9184ae03456d 
+点 即可： https://github.com/angelynamada/fnjsyen/commit/e7c6706b8c93c874d8596fae87bd766c6fe452fc 
+第三行不用管： https://github.com/clacestatasale/arwpkus/commit/775cb081196884287655294ed6853c4947b3f6db 
+第二行输入上面给你的地址： https://github.com/jerdoupp/ylypnre/commit/4a15843ce7ddd6e95bb1a847a574e955125f6a00 
+第一行随意输入一个名字： https://github.com/limorrn/opmecg/commit/23ec74e11ff2b45af433bbc88d4555e199d77fc6 
+选择 远程播放列表文件： https://github.com/jerdoupp/ylypnre/commit/0cf48c6cc383d2314dea9e3aec2e4a9bff927427 
+打开 点击 号： https://github.com/angelynamada/fnjsyen/commit/44e325a7ab68902d52d8b50c1cf0a3037f2a0f9d 
+食用指南： https://github.com/clacestatasale/arwpkus/commit/f11f78c07aff0af308a3705e66b321f6a1ba6e67 
+适用于 macOS 的现代媒体播放器： https://github.com/limorrn/opmecg/commit/2a1ad042f253726aa74f9ca797574b61edab70be 
+直播电视和广播客户端插件： https://github.com/angelynamada/fnjsyen/commit/5fa348472d49f5d3deab17742c04ca14f19e5f65 
+具有库支持的免费跨平台媒体播放器： https://github.com/jerdoupp/ylypnre/commit/7d2927d2902ecc05ed97aea06dc611a381d273ee 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/clacestatasale/arwpkus/commit/de767cb428b688b3b6ef62e58e7b4e94f2923c34 
+支持 IPTV 流的应用程序： https://github.com/limorrn/opmecg/commit/6a37b564e606f1e32689e93d5a452d703f35c25a 
+工具： https://github.com/angelynamada/fnjsyen/commit/cbdddab6e3a027cbaecc959e462515043e428d57 
+轮播华数求索爱奇艺 2026-07-19 更新： https://github.com/jerdoupp/ylypnre/commit/6083bd7eee9917965717ee4471e04ff5fa3b6816 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/clacestatasale/arwpkus/commit/05422d0eb1f142f7b6fdec61458515704a9cf67b 
+台湾香港海外直播源 2026-07-19 更新： https://github.com/limorrn/opmecg/commit/b9c61e04f230b1cb58afa295b558a7a415980716 
+各大卫视、上千个地方台： https://github.com/jerdoupp/ylypnre/commit/f912ad583dc47295cc8069a26620769c08062325 
+国内电视台直播源 2026-07-19 更新： https://github.com/angelynamada/fnjsyen/commit/59a91f18184808414d4c43d2ab30391958a779ef 
+卫视腾讯云： https://github.com/limorrn/opmecg/commit/e0d3f5b63da3322f34633249a929c8c4888f141d 
+卫视平顶山学院教育网： https://github.com/clacestatasale/arwpkus/commit/2e979da3e25a07d89b2b34f2f728c40da4f71483 
+卫视天途云： https://github.com/jerdoupp/ylypnre/commit/ccf4bedc09582655c24bcba2676a933e1e4839d4 
+卫视地方台安徽农大： https://github.com/limorrn/opmecg/commit/6ced5055248788b7aa99b5254f9d9678c1dfd089 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/angelynamada/fnjsyen/commit/6d0aab4429646f84d7e406e07a0db8d6d817ed11 
+央视卫视广西移动直播源： https://github.com/clacestatasale/arwpkus/commit/872f7634608a270f7585697ec853b8cb8dc38079 
+付费频道直播源： https://github.com/jerdoupp/ylypnre/commit/74427c04acc36a1d2abe14719df15ad60c4f346f 
+国家直播源多个全部有效： https://github.com/angelynamada/fnjsyen/commit/56e2ef5c2f7dcc62418637a2d62aa70a1336cdae 
+直播源全部有效： https://github.com/clacestatasale/arwpkus/commit/6c70a3ceb30fa3644e9d6f4b3c678ce797b41a52 
+全部有效： https://github.com/limorrn/opmecg/commit/e7ca583b93f8ae1ac2043a42370a205003bd3466 
+直播源全部有效老电脑别用： https://github.com/jerdoupp/ylypnre/commit/906e56062906318cdcb8ca4abc3244d1e7df2da8 
+影视剧场全部流畅： https://github.com/angelynamada/fnjsyen/commit/812bede1837262e3cc497b34bf7bcf6e8d2bb506 
+全部可用： https://github.com/clacestatasale/arwpkus/commit/3ac7ea46615f339a60410900115475cea5a6492b 
+我的播放源： https://github.com/limorrn/opmecg/commit/56dbdf64b8bfbf80d68a9d86ddf7b2ab0472df16 
+其他直播源 不确定有效性： https://github.com/jerdoupp/ylypnre/commit/4f1635a10bc3e76d2894bdcec650df0b870fa243 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/8c65bc5fbdb1cdf5b57207af75d3a51041b077d5 
+新疆 IPTV 直播源： https://github.com/clacestatasale/arwpkus/commit/09ffcb0602401693833b9f06c789bd3e79ece544 
+内蒙古联通 udp 组播下载地址： https://github.com/limorrn/opmecg/commit/047af2190233cdf12036f711473fbd640e9e3023 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/761584106306b7675064a7dd0dae972760f190de 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/fd643653270ef1c85876544b80a2c358c2303be0 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/5a3bf943c557c07dea535cbf4c093ba33d134115 
+内蒙古 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/f104218fb3413eae1287e44ddb9ac3b651267111 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/b288febd9a7f6cb64f71e4f8c233ecbbc406e960 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/159b60a68ce043736ad86e517fbc0706fa24e03d 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/fa5289deedd7ef989ebf6d5f7f51e3b7ae067454 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/17ccc57ebc39436542065b71888b7b713969ad32 
+黑龙江 IPTV 直播源： https://github.com/limorrn/opmecg/commit/262a717488d3acdfb766b378606585f32bd8e529 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/4b7fd7b2366ed6cd441f5f8dd48de40d743ea3e2 
+吉林 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/b657c5b4ca39bc0304afa71fb8d19e51e2106bdc 
+辽宁移动直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/7f0d679ad4abe9ac2fce78daf9604891bf3038a3 
+辽宁电信 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/92bb2de5f389e338cce9ab5e8f417762d52d04fc 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/d3b165984d53a2e8ed1a76c9ac16b1f5aa4eab2f 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/c23253422bf256b41079e57ae882657e7680a816 
+辽宁联通 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/06ae2c9cf104d4f1b24623b8d8a5415fdf267eeb 
+辽宁 IPTV 直播源： https://github.com/limorrn/opmecg/commit/87105e574e540466069a7d652d932e42eb9fae07 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/aa642b955058dca6dc6e30d01d59db4269b56a0f 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/209554766eb133124cfde41ccdb7dcc8c76a9a0b 
+浙江联通 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/cd7b055c8d4de8bba93dcc2bcf892821a3167fb0 
+浙江移动 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/9dd0114682724196c5968bfd73b693cbf70786bd 
+浙江 IPTV 直播源： https://github.com/clacestatasale/arwpkus/commit/b3ffc740eff8face79901781f407aa8758dd2703 
+江西联通 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/3f52e1e74357dcb05bc894e2d4694a201b34a7b8 
+江西电信组播 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/95944b66b9769d01dadc1d0c5d56f7384b62429c 
+江西电信 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/f1b61cf991b36aaec1b138cfabf64ddb3b0d1560 
+江西移动 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/99c0b548aa3777ee6fac14196535b7a56d815ef5 
+江西 IPTV 直播源： https://github.com/angelynamada/fnjsyen/commit/b28863bd3694152be8478dafb853edbdd54e4c22 
+江苏移动 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/2b51964f6e96e976b2617312da72f558a3a947d9 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/45b96c21312983f7d119bf09fbd4f7dee66de4dc 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/e018b934a1045d68bd164fc085419416bf3f3c3a 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/8d6e8b18ec65fa686f30bd0c58e302344c1de81e 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/8a15343f4f57e76b2109608993cf3834389cc1c2 
+江苏电信 IPTV 直播源下载地址： https://github.com/clacestatasale/arwpkus/commit/e67a3adb89ab578c95c584b021e1e0e920f890c7 
+江苏 IPTV 直播源： https://github.com/jerdoupp/ylypnre/commit/c0eacd83ee12bfbf28c2464c6e03266ecdfe0af3 
+安徽广电 IPTV 直播源下载地址： https://github.com/limorrn/opmecg/commit/646ca15aa6c2e05583c3b070e32b6d115e7f4a95 
+海南电信组播 IPTV 直播源下载地址： https://github.com/angelynamada/fnjsyen/commit/939eb9418f045e45747a8eb2e3a5eee635040af9 
+海南联通组播 IPTV 直播源下载地址： https://github.com/jerdoupp/ylypnre/commit/fff1af9b2268fb4c839163a3f7246aebf61db8af 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月20日15时47分22秒
+来源：https://github.com/clacestatasale/arwpkus/commit/0c5337e915d1bcafede453f3e538d0081385ffae 
+来源：https://github.com/limorrn/opmecg/commit/31e12a8eaf80992decaa9440167bdca53d0d621c 
+来源：https://github.com/angelynamada/fnjsyen/commit/e22b15aa5096f07cdfa9c7ecde24d012ab81feb7 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月20日15时47分22秒
